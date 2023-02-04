@@ -18,7 +18,6 @@ https://github/jhhua/funnylife/20230119_video.mp4
 
 
 
-# histor
 ## 魔法少年
 ```
 《魔法少年》2023年2月2号
@@ -28,4 +27,5 @@ https://github/jhhua/funnylife/20230119_video.mp4
 我施展亚克席法印，电瓶车为我倾倒。
 看那眩晕效果甚佳，送你体验可好？
 ```
+![亚克席](https://user-images.githubusercontent.com/69577632/216749133-8660dc51-a703-42bb-8f4a-f6541cd2940a.jpeg)
 
