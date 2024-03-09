@@ -37,3 +37,9 @@ https://github.com/jhhua/funnylife/blob/main/%E6%92%AC%E5%A2%99%E4%BA%8B%E4%BB%B
 撬墙事件回应视频.mp4
 
 https://github.com/jhhua/funnylife/blob/main/%E6%92%AC%E5%A2%99%E4%BA%8B%E4%BB%B6%E5%9B%9E%E5%BA%94%E8%A7%86%E9%A2%91.mp4
+
+
+哎呀，有关系不得了啊！有关系，就是不得了啊！
+https://github.com/jhhua/funnylife/blob/main/%E5%85%B3%E7%B3%BB.jpg
+
+
