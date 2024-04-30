@@ -43,3 +43,34 @@ https://github.com/jhhua/funnylife/blob/main/%E6%92%AC%E5%A2%99%E4%BA%8B%E4%BB%B
 https://github.com/jhhua/funnylife/blob/main/%E5%85%B3%E7%B3%BB.jpg
 
 
+
+
+
+
+## 后续1：锅由谁背？
+警察没干过。
+https://github.com/jhhua/funnylife/blob/main/%E5%90%8E%E7%BB%AD1%EF%BC%9A%E9%94%85%E7%94%B1%E8%B0%81%E8%83%8C%EF%BC%9F/Screenshot_20240319.jpg
+
+https://github.com/jhhua/funnylife/blob/main/%E5%90%8E%E7%BB%AD1%EF%BC%9A%E9%94%85%E7%94%B1%E8%B0%81%E8%83%8C%EF%BC%9F/Screenshot_20240327.jpg
+
+
+
+## 后续2：滥用职权
+动我微信，封我知乎，滥用职权。
+跟网信办有关系，能操作他人微信，嚣张！你的社交账号，还是你的吗？
+
+封我知乎
+https://github.com/jhhua/funnylife/blob/main/%E5%90%8E%E7%BB%AD2%EF%BC%9A%E6%BB%A5%E7%94%A8%E8%81%8C%E6%9D%83/Screenshot_20240404%20%E7%9F%A5%E4%B9%8E%E5%B0%81%E5%8F%B7.jpg
+
+动我微信
+https://github.com/jhhua/funnylife/blob/main/%E5%90%8E%E7%BB%AD2%EF%BC%9A%E6%BB%A5%E7%94%A8%E8%81%8C%E6%9D%83/%E6%AF%AB%E6%97%A0%E9%9A%90%E7%A7%81%E5%8F%AF%E8%A8%80.mp4
+
+
+
+
+
+
+
+
+
+
